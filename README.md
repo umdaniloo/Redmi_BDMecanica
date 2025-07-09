@@ -1,0 +1,1 @@
+# Redmi_BDMecanica
